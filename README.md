@@ -1,2 +1,2 @@
-# kam-kam-or-bas-kam
+gen AI 
 student - warad shah
